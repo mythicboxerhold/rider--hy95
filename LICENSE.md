@@ -1,4 +1,4 @@
-# 
+# Enhance JetBrains Rider for PC | JetBrains Rider for Windows with best JetBrains Rider for PC | JetBrains Rider for Windows Extension | project-management + code-completion, the
 
 
 
